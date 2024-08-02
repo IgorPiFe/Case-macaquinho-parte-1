@@ -1,1 +1,1 @@
-# Case-macaquinho-parte-1 por @IgorPiFe @caiodidi
+# Case-macaquinho-parte-1 por @IgorPiFe @caiodidi e Jessi
